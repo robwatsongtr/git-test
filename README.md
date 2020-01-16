@@ -1,1 +1,1 @@
-Here's some goddam fucking text
+Here's some text.
